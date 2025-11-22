@@ -1,2 +1,3 @@
 # tacrolimus-ointment-uses
-tacrolimus ointment uses
+Tacrolimus Ointment is an immunosuppressant dermatological formulation primarily used for the treatment of moderate to severe atopic dermatitis and eczema. It works by reducing inflammation, itching, and redness by suppressing overactive immune responses in the affected skin. This ointment is often prescribed when patients do not respond well to conventional topical steroids. It helps restore skin condition, prevent flare-ups, and improve long-term skin comfort without the side effects associated with steroid-based products. Tacrolimus Ointment is suitable for external use on sensitive skin areas including the face, neck, and skin folds under strict medical supervision. 
+https://www.aslifesciences.com/tacrolimus-ointment-0-1w-w/ 
